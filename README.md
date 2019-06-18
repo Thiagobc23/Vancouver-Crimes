@@ -74,5 +74,5 @@ Video Links:
 [![Imgur](https://i.imgur.com/PnDLPiq.gif)](https://i.imgur.com/PnDLPiq.mp4)
 [![Imgur](https://i.imgur.com/vNA9Sjt.gif)](https://i.imgur.com/vNA9Sjt.mp4)
 [![Imgur](https://i.imgur.com/bZ4SavQ.gif)](https://i.imgur.com/bZ4SavQ.mp4)
-[![Imgur](https://i.imgur.com/zeTitN9.mp4)](https://i.imgur.com/zeTitN9.mp4)
+[![Imgur](https://i.imgur.com/zeTitN9.gif)](https://i.imgur.com/zeTitN9.mp4)
 
